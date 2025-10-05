@@ -5,4 +5,4 @@ Hago cosas en el Insti
 
 Hago más cosas en Casa y lo modifico en el insti
 
-Hago más cosas en Casa
+Hago mal las cosas en Casa y me toca arreglarlas en el insti
