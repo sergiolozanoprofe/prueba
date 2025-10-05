@@ -7,4 +7,4 @@ Hago más cosas en Casa y lo modifico en el insti
 
 Lo hago todo mal en el insti y lo vuelvo a hacer en casa
 
-Sigo con mis movidas en el insti
+Sigo haciendo cosas mal en el insti y las tengo que rehacer en casa y así todo el rato 
